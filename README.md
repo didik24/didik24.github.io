@@ -1,2 +1,2 @@
 # didik24.github.io
-Portofolio Muhammad Didik Abdurrahman
+Personal Website - Portofolio dan Informasi
